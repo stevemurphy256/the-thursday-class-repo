@@ -1,0 +1,1 @@
+# the-thursday-class-repo
